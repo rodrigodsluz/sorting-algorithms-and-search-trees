@@ -44,8 +44,19 @@ https://drive.google.com/file/d/1GhR4kDcX79rXllCpCxHYJKVT4TsHs7Yi/view
 
 https://drive.google.com/file/d/1s8HiXw3qDG7uqg1vt21Jhn-JJoyfvXw6/view
 
-## Class 04:
+## Class 04: (Quick Sort)
 
+https://drive.google.com/file/d/128cdSDaTqI6NjekuMoFkChF5HeTgx8I8/view
+
+https://drive.google.com/file/d/1mm6CJCERE0AxILUPM3lhU3WrhNwC5lP5/view
+
+https://drive.google.com/file/d/1BkQWJEpBQjpMHzhLJPfq5b7bRlLCk2Gb/view
+
+https://drive.google.com/file/d/1csP4sevQz0bIFT4iLSE8BOas48aOQrH2/view
+
+https://drive.google.com/file/d/1mJDsI2PfvoHlVFGOOMbdCqzWwD3-9KTq/view
+
+https://drive.google.com/file/d/1NvK-5AWmmv5fZQxMVMl9fOMwlDzvbN7h/view
 
 ## Class 05:
 
