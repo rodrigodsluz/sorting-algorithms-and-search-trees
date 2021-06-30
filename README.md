@@ -24,8 +24,15 @@ https://drive.google.com/file/d/1wEGeyOcFxngRcWKCKA1FZqp0zx6VAj0p/view
 
 https://drive.google.com/file/d/1288GqDHySp1NWk04lLZeXmrYIIWtUgcS/view
 
-## Class 02:
+## Class 02: (Bubble, Smart Bubble and Comb Sort)
 
+https://drive.google.com/file/d/195hem65kw2y4wB8_0o6GjRZVdUDIygkf/view
+
+https://drive.google.com/file/d/1YeTfh4ydGuKZLEyr_2GxzUYDKidO9iJX/view
+
+https://drive.google.com/file/d/19t4JEZuLrG6SybsCsgLCXclZiiMmby0-/view
+
+https://drive.google.com/file/d/1vltuwQW-Hm9fjrx0NZYo2jze5dtgfNZ9/view
 
 ## Class 03:
 
