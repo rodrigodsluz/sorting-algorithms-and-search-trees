@@ -58,6 +58,10 @@ https://drive.google.com/file/d/1mJDsI2PfvoHlVFGOOMbdCqzWwD3-9KTq/view
 
 https://drive.google.com/file/d/1NvK-5AWmmv5fZQxMVMl9fOMwlDzvbN7h/view
 
+## Heap Sort and External Merge Sort 
+
+https://www.youtube.com/watch?v=xOdOjEWc43U
+
 ## Class 05:
 
 
