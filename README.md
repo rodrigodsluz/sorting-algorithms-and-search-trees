@@ -34,8 +34,15 @@ https://drive.google.com/file/d/19t4JEZuLrG6SybsCsgLCXclZiiMmby0-/view
 
 https://drive.google.com/file/d/1vltuwQW-Hm9fjrx0NZYo2jze5dtgfNZ9/view
 
-## Class 03:
+## Class 03: (Merge Sort)
 
+https://drive.google.com/file/d/11miGDQ8I6keLoLJRV6UE2_LXT6xeYe6T/view
+
+https://drive.google.com/file/d/1XB1Pcbm26cs5q71WuOtMQg-q3AV5KJ9F/view
+
+https://drive.google.com/file/d/1GhR4kDcX79rXllCpCxHYJKVT4TsHs7Yi/view
+
+https://drive.google.com/file/d/1s8HiXw3qDG7uqg1vt21Jhn-JJoyfvXw6/view
 
 ## Class 04:
 
