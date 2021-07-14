@@ -62,8 +62,13 @@ https://drive.google.com/file/d/1NvK-5AWmmv5fZQxMVMl9fOMwlDzvbN7h/view
 
 https://www.youtube.com/watch?v=xOdOjEWc43U
 
-## Class 05:
+## Class 05: (Search Binary tree)
 
+https://drive.google.com/file/d/12kYeK_TuGOVLML6OK4SA71j-iL-RA6Pe/view
+
+https://drive.google.com/file/d/1WzDmAviDuqcgVNt-464JQ09dnTN-NAT5/view
+
+https://drive.google.com/file/d/1ixnEG6crP5HfxGQQa44CjjQR8UM_Vks8/view
 
 
 ## Class 06:
