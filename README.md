@@ -71,8 +71,23 @@ https://drive.google.com/file/d/1WzDmAviDuqcgVNt-464JQ09dnTN-NAT5/view
 https://drive.google.com/file/d/1ixnEG6crP5HfxGQQa44CjjQR8UM_Vks8/view
 
 
-## Class 06:
+## Class 06: (AVL Tree)
 
+https://drive.google.com/file/d/17lbLFApzKhdOKZUEHC0uJo2qK6Y87kOR/view
+
+https://drive.google.com/file/d/1EDesj3vreL-bT6GtiJCkE--UnZJgJkkF/view
+
+https://drive.google.com/file/d/1gjnKT69hBXv5-TCMBvsWhpQdbgQXFTiu/view
+
+https://drive.google.com/file/d/1nQ1u40mlMHQre9isTmOKofSXXJ7v3s3X/view
+
+https://drive.google.com/file/d/1-WAaQrsbPrFGVeRr0RZfK9icaD0C89zg/view
+
+https://drive.google.com/file/d/10UZDCdfPV4ALvM6yPidNImTPOTtA0CCi/view
+
+https://drive.google.com/file/d/14dI4pgLvf4N0c8FI7UT7TlcQshULzRDN/view
+
+https://drive.google.com/file/d/1qaneUPXVfQNiHvsiXjDAGIY4f2Cp5mwX/view
 
 ## Class 07:
 
