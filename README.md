@@ -89,15 +89,23 @@ https://drive.google.com/file/d/14dI4pgLvf4N0c8FI7UT7TlcQshULzRDN/view
 
 https://drive.google.com/file/d/1qaneUPXVfQNiHvsiXjDAGIY4f2Cp5mwX/view
 
-## Class 07:
+## Class 07: (Left-Leaning Red Black)
+
+https://drive.google.com/file/d/1uU9gAfip2VrShpQQn4ccnO2c_oLu-4R8/view
+
+https://drive.google.com/file/d/1KaKPdA9q18zgCVrAGo_JEDBLC_96ivLn/view
+
+https://drive.google.com/file/d/1d_b7MVVZK5Zpz-lAFFhA7pn6Vm16qDll/view
+
+https://drive.google.com/file/d/1X3am9DEBw9adeGnDPv8Shk2Po9HuA190/view
+
+https://drive.google.com/file/d/1s57gvgtQGRcPkkhtvxtucFF5XoT9SiX0/view
+
+## Class 08: (B+ Tree)
 
 
 
-## Class 08:
-
-
-
-## Class 09:
+## Class 09: (Hashing)
 
 
 
