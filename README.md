@@ -103,7 +103,29 @@ https://drive.google.com/file/d/1s57gvgtQGRcPkkhtvxtucFF5XoT9SiX0/view
 
 ## Class 08: (B+ Tree)
 
+https://drive.google.com/file/d/1bkAkj4czeUTUaHrrIS-vGg6cuMgq9P8A/view
 
+https://drive.google.com/file/d/1Gg1BDvNobkz81rn5oDHAL8wQjisdrCou/view
+
+https://drive.google.com/file/d/1cayfmKe9_9mi-vUV_yABiwWba-7zASUu/view
+
+https://drive.google.com/file/d/1AIMau0B5qt5eqjmRP4sgsqGO08TABrl-/view
+
+https://drive.google.com/file/d/1RXZIN8Ij2QKWaF-C0ocDF9dkf3Mja56o/view
+
+https://drive.google.com/file/d/1M1OnLqKvU5IfRwPJFXN1WZE6g6En2V1n/view
+
+https://drive.google.com/file/d/1jm1Oc2KV1OkGGF6-3JpZJO9HWnfFjVF7/view
+
+https://drive.google.com/file/d/1yLCcOPhUAJbQ-OF661WN1LJdmPacoghT/view
+
+https://drive.google.com/file/d/1bxhzOagp4HJfDCyqXobYdSAKrzLaeYYO/view
+
+https://drive.google.com/file/d/1LVTU2dvmxdun5Eol2ktejzLm63sD1ulM/view
+
+https://drive.google.com/file/d/1nmohKut3s_38nZs0JxXIr-kdqive-hbE/view
+
+https://drive.google.com/file/d/1hSJXygP2XZotnTMd3vHNwrrvwwsuTosu/view
 
 ## Class 09: (Hashing)
 
