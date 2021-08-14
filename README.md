@@ -160,12 +160,3 @@ https://drive.google.com/file/d/1DRez2HZ0_R9_IFxzPPanYdBNF8kvw4P7/view
 https://drive.google.com/file/d/1we0SEvdLRukXEvomnJDBBWTBKQvuydMv/view
 
 https://drive.google.com/file/d/1UW57nNWgP9VkQGlG4V1BrTVf8bXanbJF/view
-
-## Class 11:
-
-
-
-## Class 12:
-
-
-## Class 13:
