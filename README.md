@@ -141,10 +141,25 @@ https://drive.google.com/file/d/1JJSFZRedyv8LqLFMVABRC5CheiMYwMA6/view
 
 https://drive.google.com/file/d/1OGL1sRPr9ba8JM0rr1W7YYFFOpzrOijR/view
 
-## Class 10 ():
+## Class 10 (Arquivos):
 
+https://drive.google.com/file/d/1InRbZWGIgQITtkYZbahWRp335fTD2Z06/view
 
+https://drive.google.com/file/d/1NbA27ajkGsz1SbmG-YTopQgql3NKoKT7/view
 
+https://drive.google.com/file/d/14KxqCVy9j-3_Ug_JTEjnGnWJZsyxbOKm/view
+
+https://drive.google.com/file/d/1i9rWmvZSxwbdL4bAeGxsH_74LszfyNPO/view
+
+https://drive.google.com/file/d/1eIUwOm-pqef6E40vxNo7WWpJIxgKNJwF/view
+
+https://drive.google.com/file/d/1HqftnNWp4aXHX4_VPBK9Dl_wBZKXI_N4/view
+
+https://drive.google.com/file/d/1DRez2HZ0_R9_IFxzPPanYdBNF8kvw4P7/view
+
+https://drive.google.com/file/d/1we0SEvdLRukXEvomnJDBBWTBKQvuydMv/view
+
+https://drive.google.com/file/d/1UW57nNWgP9VkQGlG4V1BrTVf8bXanbJF/view
 
 ## Class 11:
 
