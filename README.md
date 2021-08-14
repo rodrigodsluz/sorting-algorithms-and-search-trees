@@ -129,9 +129,19 @@ https://drive.google.com/file/d/1hSJXygP2XZotnTMd3vHNwrrvwwsuTosu/view
 
 ## Class 09: (Hashing)
 
+https://drive.google.com/file/d/1i7woPvxRu-CBI8G-2UQ8BnH0GrG7AMCn/view
 
+https://drive.google.com/file/d/1CVvVGaHAFWkO-AOTp13wGWLLO9RMi3js/view
 
-## Class 10:
+https://drive.google.com/file/d/1o_DtOmch1RumJHaYxiV_veLBctGvBwzB/view
+
+https://drive.google.com/file/d/11IP4Q-a4SWhOuibDclcGHlTLpudnZBBJ/view
+
+https://drive.google.com/file/d/1JJSFZRedyv8LqLFMVABRC5CheiMYwMA6/view
+
+https://drive.google.com/file/d/1OGL1sRPr9ba8JM0rr1W7YYFFOpzrOijR/view
+
+## Class 10 ():
 
 
 
